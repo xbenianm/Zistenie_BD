@@ -1,0 +1,1 @@
+Zistenie_BD bend deduction_úbytky_v_air_bendingu.
